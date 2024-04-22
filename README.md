@@ -1,3 +1,5 @@
+🚀
+
 Hey, I am an Engineering Leader and a Fullstack Developer based in UK.
 
 I have over 10 years of experience working mostly with startups and scale ups. I am a seasoned leader, having led teams of all sizes and shapes with a strong focus on building high-performing teams and delivering high-quality products.
