@@ -1,4 +1,4 @@
-🚀
+👋
 
 Hey, I am an Engineering Leader and a Fullstack Developer based in UK.
 
